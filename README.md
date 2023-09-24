@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ninaz76
 - 👀 I’m interested in failure
-- 🌱 I’m currently learning failure
+- 🌱 I’m currently learning how to fail
 - 💞️ I’m looking to collaborate on my downfall
 - 📫 How to reach me : Ask
 
